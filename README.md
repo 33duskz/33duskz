@@ -11,3 +11,5 @@ Meu nome é Nicolas Pereira
 nicolas.29pm@gmail.com
 
 @duskz33
+
+![](https://media1.tenor.com/m/DSyo0NKX8gMAAAAC/gojo-satoru.gif)
